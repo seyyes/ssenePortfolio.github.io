@@ -1,0 +1,1 @@
+This portfolio contains data analyst projects made by Seynabou SENE
